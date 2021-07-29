@@ -1,4 +1,5 @@
 Hello, I am Taka.<br>
-Currently: <br>
+Currently: 💤<br>
+Discord: Taka#0001<br>
 
-Discord: Taka#0001
+For now I mainly upload schoolwork.
